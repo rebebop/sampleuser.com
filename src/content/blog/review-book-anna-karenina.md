@@ -118,7 +118,7 @@ only a directed action where ever we look.
 Knowledge is only used to formalise the super structures
 in our society.
 
-What did knowledge do for Stepan (Levin's brother)?
+What did knowledge do for Sergei (Levin's brother)?
 It destroyed him.
 Though alone with the girl he desired, even in that fleeting moment
 when he thought he might approach her,
@@ -126,7 +126,7 @@ he left without saying anything,
 too much of a martyr to his own intellectual cause.
 What Levin came to understand about life
 through his journey with Kitty
-was something that Stepan never experienced,
+was something that Sergei never experienced,
 nor ever could experience.
 
 Knowledge is a poor substitute
@@ -239,7 +239,7 @@ And this move, more than anything,
 completely obliterated any dignity Anna or Vronsky had left.
 In fact, Anna never hated him as intensely as she did after this act
 of radical mercy.
-and through that hatred, she came to loathe herself with equal ferocity.
+And through that hatred, she came to loathe herself with equal ferocity.
 
 This is the point of all genuine philosophy,
 and religion understands it perfectly as well:
